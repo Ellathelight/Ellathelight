@@ -2,7 +2,7 @@
 **Email** : 📧
 Sinah.lamin@lincoln.ox.ac.uk 
 
-**Linkedin**: [Sinnah Samuella Lamin](https://www.linkedin.com/in/sinnah-samuella-lamin/)
+**Linkedin**: 🔗 [Sinnah Samuella Lamin](https://www.linkedin.com/in/sinnah-samuella-lamin/)
 
 I am from Sierra Leone 🇸🇱 and I have over three(3) years in program design, project management, and operations across health, education, and entrepreneurship. 
 I founded Caring for Girls, a non-profit initiative that has transformed the lives of over 3,000 women and girls in Sierra Leone by delivering vital reproductive health education and services, empowering them to take control of their sexual and reproductive health.
